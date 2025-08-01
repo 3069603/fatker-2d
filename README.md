@@ -17,7 +17,7 @@ In the post-apocalyptic Exclusion Zone, no humans remain. Only cats. Chubby, gru
 
 ## 🔗 Links
 
-- 🔥 NFT Collection: [on Getgems](https://getgems.io/collection/FATKER-2D)
+- 🔥 NFT Collection: [on Getgems](https://getgems.io/FATKER-2D)
 - 📬 Contact Author: [on Telegram](https://t.me/by3069603)
 
 ---
